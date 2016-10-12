@@ -14,7 +14,7 @@
  
  
 
-   by Nathan E Frick, Texas
+   
 
 	
 
